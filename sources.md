@@ -1,0 +1,9 @@
+https://sites.google.com/view/puhekielikurssi/puhekielen-verkkokurssi/for-students
+https://www.youtube.com/@OpisuomeaKatankanssa
+https://finnishcourses.fi/
+https://randomfinnishlesson.blogspot.com/2025/03/luetaan-numeroruuhka.html
+https://suomitaskussa.eu/
+https://uusikielemme.fi/
+https://open.spotify.com/show/4sGoFvQUHdo4ND6hwjKxzj
+https://www.loecsen.com/en/learn-finnish#/en/Essentials
+https://yle.fi/
